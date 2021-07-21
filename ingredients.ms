@@ -1,8 +1,8 @@
- 2 cups of milk
+ 2 cups  milk
  3 tbps suger 
-  3 tbps of custard powder
-  2 cups of water
-  80 g of jelly powder
+  3 tbps  custard powder
+  2 cups  water
+  80 g  jelly powder
   add strawberries (optional)
   sliced apple , banana , grapes
   
